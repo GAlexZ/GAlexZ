@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GAlexZ
 - 👀 I’m interested in Automation
-- 🌱 I’m currently learning Schoolstuff
+- 🌱 I’m currently in uni
 - 💞️ I’m looking to collaborate on Monoploy
 - 📫 How to reach me per chat
 
